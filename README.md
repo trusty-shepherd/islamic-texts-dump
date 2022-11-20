@@ -1,5 +1,3 @@
-# islamic-texts-dump
-
 In the Name of Allah the Merciful, the Compassionate
 
 Praise be to Allah the Lord of Creation. Prayers and peace be upon our Master Muhammad, the Seal of the Prophets and the Imam of the Messengers.
